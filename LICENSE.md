@@ -1,4 +1,4 @@
-# 
+# updated Inkscape for PC | Inkscape for Windows Automation | style-panels + path-editing offers the most advanced Inkscape for PC | Inkscape for Windows automation, with
 
 
 
